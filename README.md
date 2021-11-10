@@ -1,2 +1,2 @@
 # testowe
-test opis
+test opis Mat Fraser > Rich Froning
